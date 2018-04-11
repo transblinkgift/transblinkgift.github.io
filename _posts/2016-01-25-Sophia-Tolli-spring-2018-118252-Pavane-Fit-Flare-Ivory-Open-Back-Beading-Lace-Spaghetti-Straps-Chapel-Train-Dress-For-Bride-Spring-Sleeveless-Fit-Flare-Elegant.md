@@ -1,0 +1,18 @@
+---
+layout: post
+date: '2016-01-25'
+title: "Sophia Tolli spring 2018 118252 Pavane Fit & Flare Ivory Open Back Beading Lace Spaghetti Straps Chapel Train Dress For Bride Spring Sleeveless Fit & Flare Elegant"
+category: Sophia Tolli
+tags: [Sophia Tolli,Fit & Flare,Elegant,Spaghetti Straps,Sleeveless,Spring,Lace]
+---
+### Sophia Tolli spring 2018 118252 Pavane Fit & Flare Ivory Open Back Beading Lace Spaghetti Straps Chapel Train Dress For Bride
+Just **$478.98**
+###  Spring Sleeveless  Fit & Flare Elegant
+<table><tr><td>Silhouette</td><td>Fit & Flare</td></tr><tr><td>Trend</td><td>Elegant</td></tr><tr><td>Neckline</td><td>Spaghetti Straps</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr><tr><td>Season</td><td>Spring</td></tr><tr><td>Fabric</td><td>Lace</td></tr></table>
+<a href="https://www.readybrides.com/en/sophia-tolli/110124-sophia-tolli-spring-2018-118252-pavane-fit-flare-ivory-open-back-beading-lace-spaghetti-straps-chapel-train-dress-for-bride.html"><img src="//img.readybrides.com/281356/sophia-tolli-spring-2018-118252-pavane-fit-flare-ivory-open-back-beading-lace-spaghetti-straps-chapel-train-dress-for-bride.jpg" alt="Sophia Tolli spring 2018 118252 Pavane Fit & Flare Ivory Open Back Beading Lace Spaghetti Straps Chapel Train Dress For Bride" style="width:100%;" /></a>
+
+<!-- break --><a href="https://www.readybrides.com/en/sophia-tolli/110124-sophia-tolli-spring-2018-118252-pavane-fit-flare-ivory-open-back-beading-lace-spaghetti-straps-chapel-train-dress-for-bride.html"><img src="//img.readybrides.com/281357/sophia-tolli-spring-2018-118252-pavane-fit-flare-ivory-open-back-beading-lace-spaghetti-straps-chapel-train-dress-for-bride.jpg" alt="Sophia Tolli spring 2018 118252 Pavane Fit & Flare Ivory Open Back Beading Lace Spaghetti Straps Chapel Train Dress For Bride" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/sophia-tolli/110124-sophia-tolli-spring-2018-118252-pavane-fit-flare-ivory-open-back-beading-lace-spaghetti-straps-chapel-train-dress-for-bride.html"><img src="//img.readybrides.com/281358/sophia-tolli-spring-2018-118252-pavane-fit-flare-ivory-open-back-beading-lace-spaghetti-straps-chapel-train-dress-for-bride.jpg" alt="Sophia Tolli spring 2018 118252 Pavane Fit & Flare Ivory Open Back Beading Lace Spaghetti Straps Chapel Train Dress For Bride" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/sophia-tolli/110124-sophia-tolli-spring-2018-118252-pavane-fit-flare-ivory-open-back-beading-lace-spaghetti-straps-chapel-train-dress-for-bride.html"><img src="//img.readybrides.com/281359/sophia-tolli-spring-2018-118252-pavane-fit-flare-ivory-open-back-beading-lace-spaghetti-straps-chapel-train-dress-for-bride.jpg" alt="Sophia Tolli spring 2018 118252 Pavane Fit & Flare Ivory Open Back Beading Lace Spaghetti Straps Chapel Train Dress For Bride" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/sophia-tolli/110124-sophia-tolli-spring-2018-118252-pavane-fit-flare-ivory-open-back-beading-lace-spaghetti-straps-chapel-train-dress-for-bride.html"><img src="//img.readybrides.com/281355/sophia-tolli-spring-2018-118252-pavane-fit-flare-ivory-open-back-beading-lace-spaghetti-straps-chapel-train-dress-for-bride.jpg" alt="Sophia Tolli spring 2018 118252 Pavane Fit & Flare Ivory Open Back Beading Lace Spaghetti Straps Chapel Train Dress For Bride" style="width:100%;" /></a>
+Buy it: [https://www.readybrides.com/en/sophia-tolli/110124-sophia-tolli-spring-2018-118252-pavane-fit-flare-ivory-open-back-beading-lace-spaghetti-straps-chapel-train-dress-for-bride.html](https://www.readybrides.com/en/sophia-tolli/110124-sophia-tolli-spring-2018-118252-pavane-fit-flare-ivory-open-back-beading-lace-spaghetti-straps-chapel-train-dress-for-bride.html)

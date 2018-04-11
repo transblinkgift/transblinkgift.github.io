@@ -1,0 +1,18 @@
+---
+layout: post
+date: '2017-06-26'
+title: "Dana Harel 2018 Open V Back Illusion Split Appliques Tulle Butterfly Sleeves Sweep Train Aline Ivory Dress For Bride Spring Butterfly Sleeves Aline/Princess Split"
+category: Dana Harel
+tags: [Dana Harel,Aline/Princess ,Split,Illusion,Butterfly Sleeves,Spring,Tulle]
+---
+### Dana Harel 2018 Open V Back Illusion Split Appliques Tulle Butterfly Sleeves Sweep Train Aline Ivory Dress For Bride
+Just **$428.98**
+###  Spring Butterfly Sleeves  Aline/Princess  Split
+<table><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Trend</td><td>Split</td></tr><tr><td>Neckline</td><td>Illusion</td></tr><tr><td>Sleeve</td><td>Butterfly Sleeves</td></tr><tr><td>Season</td><td>Spring</td></tr><tr><td>Fabric</td><td>Tulle</td></tr></table>
+<a href="https://www.readybrides.com/en/dana-harel/110642-dana-harel-2018-open-v-back-illusion-split-appliques-tulle-butterfly-sleeves-sweep-train-aline-ivory-dress-for-bride.html"><img src="//img.readybrides.com/284487/dana-harel-2018-open-v-back-illusion-split-appliques-tulle-butterfly-sleeves-sweep-train-aline-ivory-dress-for-bride.jpg" alt="Dana Harel 2018 Open V Back Illusion Split Appliques Tulle Butterfly Sleeves Sweep Train Aline Ivory Dress For Bride" style="width:100%;" /></a>
+
+<!-- break --><a href="https://www.readybrides.com/en/dana-harel/110642-dana-harel-2018-open-v-back-illusion-split-appliques-tulle-butterfly-sleeves-sweep-train-aline-ivory-dress-for-bride.html"><img src="//img.readybrides.com/284486/dana-harel-2018-open-v-back-illusion-split-appliques-tulle-butterfly-sleeves-sweep-train-aline-ivory-dress-for-bride.jpg" alt="Dana Harel 2018 Open V Back Illusion Split Appliques Tulle Butterfly Sleeves Sweep Train Aline Ivory Dress For Bride" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/dana-harel/110642-dana-harel-2018-open-v-back-illusion-split-appliques-tulle-butterfly-sleeves-sweep-train-aline-ivory-dress-for-bride.html"><img src="//img.readybrides.com/284485/dana-harel-2018-open-v-back-illusion-split-appliques-tulle-butterfly-sleeves-sweep-train-aline-ivory-dress-for-bride.jpg" alt="Dana Harel 2018 Open V Back Illusion Split Appliques Tulle Butterfly Sleeves Sweep Train Aline Ivory Dress For Bride" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/dana-harel/110642-dana-harel-2018-open-v-back-illusion-split-appliques-tulle-butterfly-sleeves-sweep-train-aline-ivory-dress-for-bride.html"><img src="//img.readybrides.com/284488/dana-harel-2018-open-v-back-illusion-split-appliques-tulle-butterfly-sleeves-sweep-train-aline-ivory-dress-for-bride.jpg" alt="Dana Harel 2018 Open V Back Illusion Split Appliques Tulle Butterfly Sleeves Sweep Train Aline Ivory Dress For Bride" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/dana-harel/110642-dana-harel-2018-open-v-back-illusion-split-appliques-tulle-butterfly-sleeves-sweep-train-aline-ivory-dress-for-bride.html"><img src="//img.readybrides.com/284484/dana-harel-2018-open-v-back-illusion-split-appliques-tulle-butterfly-sleeves-sweep-train-aline-ivory-dress-for-bride.jpg" alt="Dana Harel 2018 Open V Back Illusion Split Appliques Tulle Butterfly Sleeves Sweep Train Aline Ivory Dress For Bride" style="width:100%;" /></a>
+Buy it: [https://www.readybrides.com/en/dana-harel/110642-dana-harel-2018-open-v-back-illusion-split-appliques-tulle-butterfly-sleeves-sweep-train-aline-ivory-dress-for-bride.html](https://www.readybrides.com/en/dana-harel/110642-dana-harel-2018-open-v-back-illusion-split-appliques-tulle-butterfly-sleeves-sweep-train-aline-ivory-dress-for-bride.html)

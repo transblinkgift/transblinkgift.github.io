@@ -1,0 +1,18 @@
+---
+layout: post
+date: '2017-07-09'
+title: "Julia Kontogruni 2018 JK1853 Royal Train Sweet Ivory Long Sleeves Illusion Ball Gown Winter Appliques Lace Bridal Dress Winter Long Sleeves Ball Gown Sweet"
+category: Julia Kontogruni
+tags: [Julia Kontogruni,Ball Gown,Sweet,Illusion,Long Sleeves,Winter,Lace]
+---
+### Julia Kontogruni 2018 JK1853 Royal Train Sweet Ivory Long Sleeves Illusion Ball Gown Winter Appliques Lace Bridal Dress
+Just **$688.98**
+###  Winter Long Sleeves  Ball Gown Sweet
+<table><tr><td>Silhouette</td><td>Ball Gown</td></tr><tr><td>Trend</td><td>Sweet</td></tr><tr><td>Neckline</td><td>Illusion</td></tr><tr><td>Sleeve</td><td>Long Sleeves</td></tr><tr><td>Season</td><td>Winter</td></tr><tr><td>Fabric</td><td>Lace</td></tr></table>
+<a href="https://www.readybrides.com/en/julia-kontogruni/109578-julia-kontogruni-2018-jk1853-royal-train-sweet-ivory-long-sleeves-illusion-ball-gown-winter-appliques-lace-bridal-dress.html"><img src="//img.readybrides.com/278987/julia-kontogruni-2018-jk1853-royal-train-sweet-ivory-long-sleeves-illusion-ball-gown-winter-appliques-lace-bridal-dress.jpg" alt="Julia Kontogruni 2018 JK1853 Royal Train Sweet Ivory Long Sleeves Illusion Ball Gown Winter Appliques Lace Bridal Dress" style="width:100%;" /></a>
+
+<!-- break --><a href="https://www.readybrides.com/en/julia-kontogruni/109578-julia-kontogruni-2018-jk1853-royal-train-sweet-ivory-long-sleeves-illusion-ball-gown-winter-appliques-lace-bridal-dress.html"><img src="//img.readybrides.com/278988/julia-kontogruni-2018-jk1853-royal-train-sweet-ivory-long-sleeves-illusion-ball-gown-winter-appliques-lace-bridal-dress.jpg" alt="Julia Kontogruni 2018 JK1853 Royal Train Sweet Ivory Long Sleeves Illusion Ball Gown Winter Appliques Lace Bridal Dress" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/julia-kontogruni/109578-julia-kontogruni-2018-jk1853-royal-train-sweet-ivory-long-sleeves-illusion-ball-gown-winter-appliques-lace-bridal-dress.html"><img src="//img.readybrides.com/278989/julia-kontogruni-2018-jk1853-royal-train-sweet-ivory-long-sleeves-illusion-ball-gown-winter-appliques-lace-bridal-dress.jpg" alt="Julia Kontogruni 2018 JK1853 Royal Train Sweet Ivory Long Sleeves Illusion Ball Gown Winter Appliques Lace Bridal Dress" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/julia-kontogruni/109578-julia-kontogruni-2018-jk1853-royal-train-sweet-ivory-long-sleeves-illusion-ball-gown-winter-appliques-lace-bridal-dress.html"><img src="//img.readybrides.com/278990/julia-kontogruni-2018-jk1853-royal-train-sweet-ivory-long-sleeves-illusion-ball-gown-winter-appliques-lace-bridal-dress.jpg" alt="Julia Kontogruni 2018 JK1853 Royal Train Sweet Ivory Long Sleeves Illusion Ball Gown Winter Appliques Lace Bridal Dress" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/julia-kontogruni/109578-julia-kontogruni-2018-jk1853-royal-train-sweet-ivory-long-sleeves-illusion-ball-gown-winter-appliques-lace-bridal-dress.html"><img src="//img.readybrides.com/278986/julia-kontogruni-2018-jk1853-royal-train-sweet-ivory-long-sleeves-illusion-ball-gown-winter-appliques-lace-bridal-dress.jpg" alt="Julia Kontogruni 2018 JK1853 Royal Train Sweet Ivory Long Sleeves Illusion Ball Gown Winter Appliques Lace Bridal Dress" style="width:100%;" /></a>
+Buy it: [https://www.readybrides.com/en/julia-kontogruni/109578-julia-kontogruni-2018-jk1853-royal-train-sweet-ivory-long-sleeves-illusion-ball-gown-winter-appliques-lace-bridal-dress.html](https://www.readybrides.com/en/julia-kontogruni/109578-julia-kontogruni-2018-jk1853-royal-train-sweet-ivory-long-sleeves-illusion-ball-gown-winter-appliques-lace-bridal-dress.html)

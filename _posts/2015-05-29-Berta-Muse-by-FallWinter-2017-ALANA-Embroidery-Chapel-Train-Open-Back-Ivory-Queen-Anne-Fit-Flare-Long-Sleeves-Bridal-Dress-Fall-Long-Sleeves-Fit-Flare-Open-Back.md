@@ -1,0 +1,18 @@
+---
+layout: post
+date: '2015-05-29'
+title: "Berta Muse by Fall/Winter 2017 ALANA Embroidery Chapel Train Open Back Ivory Queen Anne Fit & Flare Long Sleeves Bridal Dress Fall Long Sleeves Fit & Flare Open Back"
+category: Berta
+tags: [Berta,Fit & Flare,Open Back,Queen Anne,Long Sleeves,Fall,Silk]
+---
+### Berta Muse by Fall/Winter 2017 ALANA Embroidery Chapel Train Open Back Ivory Queen Anne Fit & Flare Long Sleeves Bridal Dress
+Just **$458.98**
+###  Fall Long Sleeves  Fit & Flare Open Back
+<table><tr><td>Silhouette</td><td>Fit & Flare</td></tr><tr><td>Trend</td><td>Open Back</td></tr><tr><td>Neckline</td><td>Queen Anne</td></tr><tr><td>Sleeve</td><td>Long Sleeves</td></tr><tr><td>Season</td><td>Fall</td></tr><tr><td>Fabric</td><td>Silk</td></tr></table>
+<a href="https://www.readybrides.com/en/berta/108806-muse-by-berta-fall-winter-2017-alana-embroidery-chapel-train-open-back-ivory-queen-anne-fit-flare-long-sleeves-bridal-dress.html"><img src="//img.readybrides.com/276813/muse-by-berta-fall-winter-2017-alana-embroidery-chapel-train-open-back-ivory-queen-anne-fit-flare-long-sleeves-bridal-dress.jpg" alt="Muse by Berta Fall/Winter 2017 ALANA Embroidery Chapel Train Open Back Ivory Queen Anne Fit & Flare Long Sleeves Bridal Dress" style="width:100%;" /></a>
+
+<!-- break --><a href="https://www.readybrides.com/en/berta/108806-muse-by-berta-fall-winter-2017-alana-embroidery-chapel-train-open-back-ivory-queen-anne-fit-flare-long-sleeves-bridal-dress.html"><img src="//img.readybrides.com/276814/muse-by-berta-fall-winter-2017-alana-embroidery-chapel-train-open-back-ivory-queen-anne-fit-flare-long-sleeves-bridal-dress.jpg" alt="Muse by Berta Fall/Winter 2017 ALANA Embroidery Chapel Train Open Back Ivory Queen Anne Fit & Flare Long Sleeves Bridal Dress" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/berta/108806-muse-by-berta-fall-winter-2017-alana-embroidery-chapel-train-open-back-ivory-queen-anne-fit-flare-long-sleeves-bridal-dress.html"><img src="//img.readybrides.com/276815/muse-by-berta-fall-winter-2017-alana-embroidery-chapel-train-open-back-ivory-queen-anne-fit-flare-long-sleeves-bridal-dress.jpg" alt="Muse by Berta Fall/Winter 2017 ALANA Embroidery Chapel Train Open Back Ivory Queen Anne Fit & Flare Long Sleeves Bridal Dress" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/berta/108806-muse-by-berta-fall-winter-2017-alana-embroidery-chapel-train-open-back-ivory-queen-anne-fit-flare-long-sleeves-bridal-dress.html"><img src="//img.readybrides.com/276816/muse-by-berta-fall-winter-2017-alana-embroidery-chapel-train-open-back-ivory-queen-anne-fit-flare-long-sleeves-bridal-dress.jpg" alt="Muse by Berta Fall/Winter 2017 ALANA Embroidery Chapel Train Open Back Ivory Queen Anne Fit & Flare Long Sleeves Bridal Dress" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/berta/108806-muse-by-berta-fall-winter-2017-alana-embroidery-chapel-train-open-back-ivory-queen-anne-fit-flare-long-sleeves-bridal-dress.html"><img src="//img.readybrides.com/276812/muse-by-berta-fall-winter-2017-alana-embroidery-chapel-train-open-back-ivory-queen-anne-fit-flare-long-sleeves-bridal-dress.jpg" alt="Muse by Berta Fall/Winter 2017 ALANA Embroidery Chapel Train Open Back Ivory Queen Anne Fit & Flare Long Sleeves Bridal Dress" style="width:100%;" /></a>
+Buy it: [https://www.readybrides.com/en/berta/108806-muse-by-berta-fall-winter-2017-alana-embroidery-chapel-train-open-back-ivory-queen-anne-fit-flare-long-sleeves-bridal-dress.html](https://www.readybrides.com/en/berta/108806-muse-by-berta-fall-winter-2017-alana-embroidery-chapel-train-open-back-ivory-queen-anne-fit-flare-long-sleeves-bridal-dress.html)

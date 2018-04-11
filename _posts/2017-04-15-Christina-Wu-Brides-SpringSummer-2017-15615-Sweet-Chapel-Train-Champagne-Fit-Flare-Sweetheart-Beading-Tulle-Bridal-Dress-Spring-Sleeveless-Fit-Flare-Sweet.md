@@ -1,0 +1,18 @@
+---
+layout: post
+date: '2017-04-15'
+title: "Christina Wu Brides Spring/Summer 2017 15615 Sweet Chapel Train Champagne Fit & Flare Sweetheart Beading Tulle Bridal Dress Spring Sleeveless Fit & Flare Sweet"
+category: Christina Wu
+tags: [Christina Wu,Fit & Flare,Sweet,Sweetheart,Sleeveless,Spring,Tulle]
+---
+### Christina Wu Brides Spring/Summer 2017 15615 Sweet Chapel Train Champagne Fit & Flare Sweetheart Beading Tulle Bridal Dress
+Just **$1288.98**
+###  Spring Sleeveless  Fit & Flare Sweet
+<table><tr><td>Silhouette</td><td>Fit & Flare</td></tr><tr><td>Trend</td><td>Sweet</td></tr><tr><td>Neckline</td><td>Sweetheart</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr><tr><td>Season</td><td>Spring</td></tr><tr><td>Fabric</td><td>Tulle</td></tr></table>
+<a href="https://www.readybrides.com/en/christina-wu/110570-christina-wu-brides-spring-summer-2017-15615-sweet-chapel-train-champagne-fit-flare-sweetheart-beading-tulle-bridal-dress.html"><img src="//img.readybrides.com/284077/christina-wu-brides-spring-summer-2017-15615-sweet-chapel-train-champagne-fit-flare-sweetheart-beading-tulle-bridal-dress.jpg" alt="Christina Wu Brides Spring/Summer 2017 15615 Sweet Chapel Train Champagne Fit & Flare Sweetheart Beading Tulle Bridal Dress" style="width:100%;" /></a>
+
+<!-- break --><a href="https://www.readybrides.com/en/christina-wu/110570-christina-wu-brides-spring-summer-2017-15615-sweet-chapel-train-champagne-fit-flare-sweetheart-beading-tulle-bridal-dress.html"><img src="//img.readybrides.com/284078/christina-wu-brides-spring-summer-2017-15615-sweet-chapel-train-champagne-fit-flare-sweetheart-beading-tulle-bridal-dress.jpg" alt="Christina Wu Brides Spring/Summer 2017 15615 Sweet Chapel Train Champagne Fit & Flare Sweetheart Beading Tulle Bridal Dress" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/christina-wu/110570-christina-wu-brides-spring-summer-2017-15615-sweet-chapel-train-champagne-fit-flare-sweetheart-beading-tulle-bridal-dress.html"><img src="//img.readybrides.com/284079/christina-wu-brides-spring-summer-2017-15615-sweet-chapel-train-champagne-fit-flare-sweetheart-beading-tulle-bridal-dress.jpg" alt="Christina Wu Brides Spring/Summer 2017 15615 Sweet Chapel Train Champagne Fit & Flare Sweetheart Beading Tulle Bridal Dress" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/christina-wu/110570-christina-wu-brides-spring-summer-2017-15615-sweet-chapel-train-champagne-fit-flare-sweetheart-beading-tulle-bridal-dress.html"><img src="//img.readybrides.com/284080/christina-wu-brides-spring-summer-2017-15615-sweet-chapel-train-champagne-fit-flare-sweetheart-beading-tulle-bridal-dress.jpg" alt="Christina Wu Brides Spring/Summer 2017 15615 Sweet Chapel Train Champagne Fit & Flare Sweetheart Beading Tulle Bridal Dress" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/christina-wu/110570-christina-wu-brides-spring-summer-2017-15615-sweet-chapel-train-champagne-fit-flare-sweetheart-beading-tulle-bridal-dress.html"><img src="//img.readybrides.com/284076/christina-wu-brides-spring-summer-2017-15615-sweet-chapel-train-champagne-fit-flare-sweetheart-beading-tulle-bridal-dress.jpg" alt="Christina Wu Brides Spring/Summer 2017 15615 Sweet Chapel Train Champagne Fit & Flare Sweetheart Beading Tulle Bridal Dress" style="width:100%;" /></a>
+Buy it: [https://www.readybrides.com/en/christina-wu/110570-christina-wu-brides-spring-summer-2017-15615-sweet-chapel-train-champagne-fit-flare-sweetheart-beading-tulle-bridal-dress.html](https://www.readybrides.com/en/christina-wu/110570-christina-wu-brides-spring-summer-2017-15615-sweet-chapel-train-champagne-fit-flare-sweetheart-beading-tulle-bridal-dress.html)
