@@ -1,0 +1,18 @@
+---
+layout: post
+date: 2018-02-13
+title: "Maggie Sottero Spring/Summer 2017 Zalia Mermaid Ivory Covered Button Appliques V-Neck Chapel Train Sweet Lace Wedding Gown Spring Cap Sleeves Mermaid/Trumpet Sweet"
+category: Maggie Sottero
+tags: [Maggie Sottero,Mermaid/Trumpet,Sweet,V-neck,Cap Sleeves,Spring,Lace]
+---
+### Maggie Sottero Spring/Summer 2017 Zalia Mermaid Ivory Covered Button Appliques V-Neck Chapel Train Sweet Lace Wedding Gown
+Just **$368.98**
+###  Spring Cap Sleeves  Mermaid/Trumpet Sweet
+<table><tr><td>Silhouette</td><td>Mermaid/Trumpet</td></tr><tr><td>Trend</td><td>Sweet</td></tr><tr><td>Neckline</td><td>V-neck</td></tr><tr><td>Sleeve</td><td>Cap Sleeves</td></tr><tr><td>Season</td><td>Spring</td></tr><tr><td>Fabric</td><td>Lace</td></tr></table>
+<a href="https://www.readybrides.com/en/maggie-sottero/109934-maggie-sottero-spring-summer-2017-zalia-mermaid-ivory-covered-button-appliques-v-neck-chapel-train-sweet-lace-wedding-gown.html"><img src="//img.readybrides.com/280367/maggie-sottero-spring-summer-2017-zalia-mermaid-ivory-covered-button-appliques-v-neck-chapel-train-sweet-lace-wedding-gown.jpg" alt="Maggie Sottero Spring/Summer 2017 Zalia Mermaid Ivory Covered Button Appliques V-Neck Chapel Train Sweet Lace Wedding Gown" style="width:100%;" /></a>
+
+<!-- break --><a href="https://www.readybrides.com/en/maggie-sottero/109934-maggie-sottero-spring-summer-2017-zalia-mermaid-ivory-covered-button-appliques-v-neck-chapel-train-sweet-lace-wedding-gown.html"><img src="//img.readybrides.com/280368/maggie-sottero-spring-summer-2017-zalia-mermaid-ivory-covered-button-appliques-v-neck-chapel-train-sweet-lace-wedding-gown.jpg" alt="Maggie Sottero Spring/Summer 2017 Zalia Mermaid Ivory Covered Button Appliques V-Neck Chapel Train Sweet Lace Wedding Gown" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/maggie-sottero/109934-maggie-sottero-spring-summer-2017-zalia-mermaid-ivory-covered-button-appliques-v-neck-chapel-train-sweet-lace-wedding-gown.html"><img src="//img.readybrides.com/280369/maggie-sottero-spring-summer-2017-zalia-mermaid-ivory-covered-button-appliques-v-neck-chapel-train-sweet-lace-wedding-gown.jpg" alt="Maggie Sottero Spring/Summer 2017 Zalia Mermaid Ivory Covered Button Appliques V-Neck Chapel Train Sweet Lace Wedding Gown" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/maggie-sottero/109934-maggie-sottero-spring-summer-2017-zalia-mermaid-ivory-covered-button-appliques-v-neck-chapel-train-sweet-lace-wedding-gown.html"><img src="//img.readybrides.com/280370/maggie-sottero-spring-summer-2017-zalia-mermaid-ivory-covered-button-appliques-v-neck-chapel-train-sweet-lace-wedding-gown.jpg" alt="Maggie Sottero Spring/Summer 2017 Zalia Mermaid Ivory Covered Button Appliques V-Neck Chapel Train Sweet Lace Wedding Gown" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/maggie-sottero/109934-maggie-sottero-spring-summer-2017-zalia-mermaid-ivory-covered-button-appliques-v-neck-chapel-train-sweet-lace-wedding-gown.html"><img src="//img.readybrides.com/280366/maggie-sottero-spring-summer-2017-zalia-mermaid-ivory-covered-button-appliques-v-neck-chapel-train-sweet-lace-wedding-gown.jpg" alt="Maggie Sottero Spring/Summer 2017 Zalia Mermaid Ivory Covered Button Appliques V-Neck Chapel Train Sweet Lace Wedding Gown" style="width:100%;" /></a>
+Buy it: [https://www.readybrides.com/en/maggie-sottero/109934-maggie-sottero-spring-summer-2017-zalia-mermaid-ivory-covered-button-appliques-v-neck-chapel-train-sweet-lace-wedding-gown.html](https://www.readybrides.com/en/maggie-sottero/109934-maggie-sottero-spring-summer-2017-zalia-mermaid-ivory-covered-button-appliques-v-neck-chapel-train-sweet-lace-wedding-gown.html)

@@ -1,0 +1,18 @@
+---
+layout: post
+date: 2017-05-21
+title: "Sophia Tolli Fall/Winter 2017 Y21759 Libra Aline Sweet Chapel Train Ivory Sweetheart Sleeveless Tulle Appliques Bridal Dress Fall Sleeveless Aline/Princess Sweet"
+category: Sophia Tolli
+tags: [Sophia Tolli,Aline/Princess ,Sweet,Sweetheart,Sleeveless,Fall,Tulle]
+---
+### Sophia Tolli Fall/Winter 2017 Y21759 Libra Aline Sweet Chapel Train Ivory Sweetheart Sleeveless Tulle Appliques Bridal Dress
+Just **$358.98**
+###  Fall Sleeveless  Aline/Princess  Sweet
+<table><tr><td>Silhouette</td><td>Aline/Princess </td></tr><tr><td>Trend</td><td>Sweet</td></tr><tr><td>Neckline</td><td>Sweetheart</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr><tr><td>Season</td><td>Fall</td></tr><tr><td>Fabric</td><td>Tulle</td></tr></table>
+<a href="https://www.readybrides.com/en/sophia-tolli/106713-sophia-tolli-fall-winter-2017-y21759-libra-aline-sweet-chapel-train-ivory-sweetheart-sleeveless-tulle-appliques-bridal-dress.html"><img src="//img.readybrides.com/272440/sophia-tolli-fall-winter-2017-y21759-libra-aline-sweet-chapel-train-ivory-sweetheart-sleeveless-tulle-appliques-bridal-dress.jpg" alt="Sophia Tolli Fall/Winter 2017 Y21759 Libra Aline Sweet Chapel Train Ivory Sweetheart Sleeveless Tulle Appliques Bridal Dress" style="width:100%;" /></a>
+
+<!-- break --><a href="https://www.readybrides.com/en/sophia-tolli/106713-sophia-tolli-fall-winter-2017-y21759-libra-aline-sweet-chapel-train-ivory-sweetheart-sleeveless-tulle-appliques-bridal-dress.html"><img src="//img.readybrides.com/272441/sophia-tolli-fall-winter-2017-y21759-libra-aline-sweet-chapel-train-ivory-sweetheart-sleeveless-tulle-appliques-bridal-dress.jpg" alt="Sophia Tolli Fall/Winter 2017 Y21759 Libra Aline Sweet Chapel Train Ivory Sweetheart Sleeveless Tulle Appliques Bridal Dress" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/sophia-tolli/106713-sophia-tolli-fall-winter-2017-y21759-libra-aline-sweet-chapel-train-ivory-sweetheart-sleeveless-tulle-appliques-bridal-dress.html"><img src="//img.readybrides.com/272442/sophia-tolli-fall-winter-2017-y21759-libra-aline-sweet-chapel-train-ivory-sweetheart-sleeveless-tulle-appliques-bridal-dress.jpg" alt="Sophia Tolli Fall/Winter 2017 Y21759 Libra Aline Sweet Chapel Train Ivory Sweetheart Sleeveless Tulle Appliques Bridal Dress" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/sophia-tolli/106713-sophia-tolli-fall-winter-2017-y21759-libra-aline-sweet-chapel-train-ivory-sweetheart-sleeveless-tulle-appliques-bridal-dress.html"><img src="//img.readybrides.com/272443/sophia-tolli-fall-winter-2017-y21759-libra-aline-sweet-chapel-train-ivory-sweetheart-sleeveless-tulle-appliques-bridal-dress.jpg" alt="Sophia Tolli Fall/Winter 2017 Y21759 Libra Aline Sweet Chapel Train Ivory Sweetheart Sleeveless Tulle Appliques Bridal Dress" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/sophia-tolli/106713-sophia-tolli-fall-winter-2017-y21759-libra-aline-sweet-chapel-train-ivory-sweetheart-sleeveless-tulle-appliques-bridal-dress.html"><img src="//img.readybrides.com/272439/sophia-tolli-fall-winter-2017-y21759-libra-aline-sweet-chapel-train-ivory-sweetheart-sleeveless-tulle-appliques-bridal-dress.jpg" alt="Sophia Tolli Fall/Winter 2017 Y21759 Libra Aline Sweet Chapel Train Ivory Sweetheart Sleeveless Tulle Appliques Bridal Dress" style="width:100%;" /></a>
+Buy it: [https://www.readybrides.com/en/sophia-tolli/106713-sophia-tolli-fall-winter-2017-y21759-libra-aline-sweet-chapel-train-ivory-sweetheart-sleeveless-tulle-appliques-bridal-dress.html](https://www.readybrides.com/en/sophia-tolli/106713-sophia-tolli-fall-winter-2017-y21759-libra-aline-sweet-chapel-train-ivory-sweetheart-sleeveless-tulle-appliques-bridal-dress.html)

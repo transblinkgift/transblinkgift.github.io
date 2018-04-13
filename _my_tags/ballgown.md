@@ -1,4 +1,0 @@
----
-slug: ballgown
-name: Ballgown
----

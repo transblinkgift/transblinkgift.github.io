@@ -1,0 +1,18 @@
+---
+layout: post
+date: 2016-03-25
+title: "Christos Costarellos Spring/Summer 2018 BR18 50 Chapel Train Sweet Ball Gown Off-the-shoulder Appliques Tulle Dress For Bride Spring Short Sleeves Ball Gown Sweet"
+category: Christos
+tags: [Christos,Ball Gown,Sweet,Off-the-shoulder,Short Sleeves,Spring,Tulle]
+---
+### Christos Costarellos Spring/Summer 2018 BR18 50 Chapel Train Sweet Ball Gown Off-the-shoulder Appliques Tulle Dress For Bride
+Just **$438.98**
+###  Spring Short Sleeves  Ball Gown Sweet
+<table><tr><td>Silhouette</td><td>Ball Gown</td></tr><tr><td>Trend</td><td>Sweet</td></tr><tr><td>Neckline</td><td>Off-the-shoulder</td></tr><tr><td>Sleeve</td><td>Short Sleeves</td></tr><tr><td>Season</td><td>Spring</td></tr><tr><td>Fabric</td><td>Tulle</td></tr></table>
+<a href="https://www.readybrides.com/en/christos/107772-christos-costarellos-spring-summer-2018-br18-50-chapel-train-sweet-ball-gown-off-the-shoulder-appliques-tulle-dress-for-bride.html"><img src="//img.readybrides.com/274510/christos-costarellos-spring-summer-2018-br18-50-chapel-train-sweet-ball-gown-off-the-shoulder-appliques-tulle-dress-for-bride.jpg" alt="Christos Costarellos Spring/Summer 2018 BR18 50 Chapel Train Sweet Ball Gown Off-the-shoulder Appliques Tulle Dress For Bride" style="width:100%;" /></a>
+
+<!-- break --><a href="https://www.readybrides.com/en/christos/107772-christos-costarellos-spring-summer-2018-br18-50-chapel-train-sweet-ball-gown-off-the-shoulder-appliques-tulle-dress-for-bride.html"><img src="//img.readybrides.com/274511/christos-costarellos-spring-summer-2018-br18-50-chapel-train-sweet-ball-gown-off-the-shoulder-appliques-tulle-dress-for-bride.jpg" alt="Christos Costarellos Spring/Summer 2018 BR18 50 Chapel Train Sweet Ball Gown Off-the-shoulder Appliques Tulle Dress For Bride" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/christos/107772-christos-costarellos-spring-summer-2018-br18-50-chapel-train-sweet-ball-gown-off-the-shoulder-appliques-tulle-dress-for-bride.html"><img src="//img.readybrides.com/274512/christos-costarellos-spring-summer-2018-br18-50-chapel-train-sweet-ball-gown-off-the-shoulder-appliques-tulle-dress-for-bride.jpg" alt="Christos Costarellos Spring/Summer 2018 BR18 50 Chapel Train Sweet Ball Gown Off-the-shoulder Appliques Tulle Dress For Bride" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/christos/107772-christos-costarellos-spring-summer-2018-br18-50-chapel-train-sweet-ball-gown-off-the-shoulder-appliques-tulle-dress-for-bride.html"><img src="//img.readybrides.com/274513/christos-costarellos-spring-summer-2018-br18-50-chapel-train-sweet-ball-gown-off-the-shoulder-appliques-tulle-dress-for-bride.jpg" alt="Christos Costarellos Spring/Summer 2018 BR18 50 Chapel Train Sweet Ball Gown Off-the-shoulder Appliques Tulle Dress For Bride" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/christos/107772-christos-costarellos-spring-summer-2018-br18-50-chapel-train-sweet-ball-gown-off-the-shoulder-appliques-tulle-dress-for-bride.html"><img src="//img.readybrides.com/274509/christos-costarellos-spring-summer-2018-br18-50-chapel-train-sweet-ball-gown-off-the-shoulder-appliques-tulle-dress-for-bride.jpg" alt="Christos Costarellos Spring/Summer 2018 BR18 50 Chapel Train Sweet Ball Gown Off-the-shoulder Appliques Tulle Dress For Bride" style="width:100%;" /></a>
+Buy it: [https://www.readybrides.com/en/christos/107772-christos-costarellos-spring-summer-2018-br18-50-chapel-train-sweet-ball-gown-off-the-shoulder-appliques-tulle-dress-for-bride.html](https://www.readybrides.com/en/christos/107772-christos-costarellos-spring-summer-2018-br18-50-chapel-train-sweet-ball-gown-off-the-shoulder-appliques-tulle-dress-for-bride.html)

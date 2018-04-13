@@ -1,4 +1,0 @@
----
-slug: asymmetrical
-name: Asymmetrical
----

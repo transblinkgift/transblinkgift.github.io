@@ -1,0 +1,18 @@
+---
+layout: post
+date: 2015-08-18
+title: "Alon Livne 2017 Wendy Scoop Neck Fit & Flare Cap Sleeves Ivory Vintage Sweep Train Beading Tulle Keyhole Back Wedding Dress Spring Cap Sleeves Fit & Flare Vintage"
+category: Alon Livne
+tags: [Alon Livne,Fit & Flare,Vintage,Scoop Neck,Cap Sleeves,Spring,Tulle]
+---
+### Alon Livne 2017 Wendy Scoop Neck Fit & Flare Cap Sleeves Ivory Vintage Sweep Train Beading Tulle Keyhole Back Wedding Dress
+Just **$899.98**
+###  Spring Cap Sleeves  Fit & Flare Vintage
+<table><tr><td>Silhouette</td><td>Fit & Flare</td></tr><tr><td>Trend</td><td>Vintage</td></tr><tr><td>Neckline</td><td>Scoop Neck</td></tr><tr><td>Sleeve</td><td>Cap Sleeves</td></tr><tr><td>Season</td><td>Spring</td></tr><tr><td>Fabric</td><td>Tulle</td></tr></table>
+<a href="https://www.readybrides.com/en/alon-livne/109832-alon-livne-2017-wendy-scoop-neck-fit-flare-cap-sleeves-ivory-vintage-sweep-train-beading-tulle-keyhole-back-wedding-dress.html"><img src="//img.readybrides.com/279810/alon-livne-2017-wendy-scoop-neck-fit-flare-cap-sleeves-ivory-vintage-sweep-train-beading-tulle-keyhole-back-wedding-dress.jpg" alt="Alon Livne 2017 Wendy Scoop Neck Fit & Flare Cap Sleeves Ivory Vintage Sweep Train Beading Tulle Keyhole Back Wedding Dress" style="width:100%;" /></a>
+
+<!-- break --><a href="https://www.readybrides.com/en/alon-livne/109832-alon-livne-2017-wendy-scoop-neck-fit-flare-cap-sleeves-ivory-vintage-sweep-train-beading-tulle-keyhole-back-wedding-dress.html"><img src="//img.readybrides.com/279811/alon-livne-2017-wendy-scoop-neck-fit-flare-cap-sleeves-ivory-vintage-sweep-train-beading-tulle-keyhole-back-wedding-dress.jpg" alt="Alon Livne 2017 Wendy Scoop Neck Fit & Flare Cap Sleeves Ivory Vintage Sweep Train Beading Tulle Keyhole Back Wedding Dress" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/alon-livne/109832-alon-livne-2017-wendy-scoop-neck-fit-flare-cap-sleeves-ivory-vintage-sweep-train-beading-tulle-keyhole-back-wedding-dress.html"><img src="//img.readybrides.com/279812/alon-livne-2017-wendy-scoop-neck-fit-flare-cap-sleeves-ivory-vintage-sweep-train-beading-tulle-keyhole-back-wedding-dress.jpg" alt="Alon Livne 2017 Wendy Scoop Neck Fit & Flare Cap Sleeves Ivory Vintage Sweep Train Beading Tulle Keyhole Back Wedding Dress" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/alon-livne/109832-alon-livne-2017-wendy-scoop-neck-fit-flare-cap-sleeves-ivory-vintage-sweep-train-beading-tulle-keyhole-back-wedding-dress.html"><img src="//img.readybrides.com/279813/alon-livne-2017-wendy-scoop-neck-fit-flare-cap-sleeves-ivory-vintage-sweep-train-beading-tulle-keyhole-back-wedding-dress.jpg" alt="Alon Livne 2017 Wendy Scoop Neck Fit & Flare Cap Sleeves Ivory Vintage Sweep Train Beading Tulle Keyhole Back Wedding Dress" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/alon-livne/109832-alon-livne-2017-wendy-scoop-neck-fit-flare-cap-sleeves-ivory-vintage-sweep-train-beading-tulle-keyhole-back-wedding-dress.html"><img src="//img.readybrides.com/279809/alon-livne-2017-wendy-scoop-neck-fit-flare-cap-sleeves-ivory-vintage-sweep-train-beading-tulle-keyhole-back-wedding-dress.jpg" alt="Alon Livne 2017 Wendy Scoop Neck Fit & Flare Cap Sleeves Ivory Vintage Sweep Train Beading Tulle Keyhole Back Wedding Dress" style="width:100%;" /></a>
+Buy it: [https://www.readybrides.com/en/alon-livne/109832-alon-livne-2017-wendy-scoop-neck-fit-flare-cap-sleeves-ivory-vintage-sweep-train-beading-tulle-keyhole-back-wedding-dress.html](https://www.readybrides.com/en/alon-livne/109832-alon-livne-2017-wendy-scoop-neck-fit-flare-cap-sleeves-ivory-vintage-sweep-train-beading-tulle-keyhole-back-wedding-dress.html)

@@ -1,0 +1,18 @@
+---
+layout: post
+date: 2017-11-18
+title: "Christina Wu Brides Spring/Summer 2017 15633 Cathedral Train Sparkle & Shine Off-the-shoulder Beading Ball Gown Bridal Dress Spring Short Sleeves Ball Gown Sparkle&Shine"
+category: Christina Wu
+tags: [Christina Wu,Ball Gown,Sparkle&Shine,Off-the-shoulder,Short Sleeves,Spring,Tulle]
+---
+### Christina Wu Brides Spring/Summer 2017 15633 Cathedral Train Sparkle & Shine Off-the-shoulder Beading Ball Gown Bridal Dress
+Just **$428.98**
+###  Spring Short Sleeves  Ball Gown Sparkle&Shine
+<table><tr><td>Silhouette</td><td>Ball Gown</td></tr><tr><td>Trend</td><td>Sparkle&Shine</td></tr><tr><td>Neckline</td><td>Off-the-shoulder</td></tr><tr><td>Sleeve</td><td>Short Sleeves</td></tr><tr><td>Season</td><td>Spring</td></tr><tr><td>Fabric</td><td>Tulle</td></tr></table>
+<a href="https://www.readybrides.com/en/christina-wu/110575-christina-wu-brides-spring-summer-2017-15633-cathedral-train-sparkle-shine-off-the-shoulder-beading-ball-gown-bridal-dress.html"><img src="//img.readybrides.com/284101/christina-wu-brides-spring-summer-2017-15633-cathedral-train-sparkle-shine-off-the-shoulder-beading-ball-gown-bridal-dress.jpg" alt="Christina Wu Brides Spring/Summer 2017 15633 Cathedral Train Sparkle & Shine Off-the-shoulder Beading Ball Gown Bridal Dress" style="width:100%;" /></a>
+
+<!-- break --><a href="https://www.readybrides.com/en/christina-wu/110575-christina-wu-brides-spring-summer-2017-15633-cathedral-train-sparkle-shine-off-the-shoulder-beading-ball-gown-bridal-dress.html"><img src="//img.readybrides.com/284102/christina-wu-brides-spring-summer-2017-15633-cathedral-train-sparkle-shine-off-the-shoulder-beading-ball-gown-bridal-dress.jpg" alt="Christina Wu Brides Spring/Summer 2017 15633 Cathedral Train Sparkle & Shine Off-the-shoulder Beading Ball Gown Bridal Dress" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/christina-wu/110575-christina-wu-brides-spring-summer-2017-15633-cathedral-train-sparkle-shine-off-the-shoulder-beading-ball-gown-bridal-dress.html"><img src="//img.readybrides.com/284103/christina-wu-brides-spring-summer-2017-15633-cathedral-train-sparkle-shine-off-the-shoulder-beading-ball-gown-bridal-dress.jpg" alt="Christina Wu Brides Spring/Summer 2017 15633 Cathedral Train Sparkle & Shine Off-the-shoulder Beading Ball Gown Bridal Dress" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/christina-wu/110575-christina-wu-brides-spring-summer-2017-15633-cathedral-train-sparkle-shine-off-the-shoulder-beading-ball-gown-bridal-dress.html"><img src="//img.readybrides.com/284104/christina-wu-brides-spring-summer-2017-15633-cathedral-train-sparkle-shine-off-the-shoulder-beading-ball-gown-bridal-dress.jpg" alt="Christina Wu Brides Spring/Summer 2017 15633 Cathedral Train Sparkle & Shine Off-the-shoulder Beading Ball Gown Bridal Dress" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/christina-wu/110575-christina-wu-brides-spring-summer-2017-15633-cathedral-train-sparkle-shine-off-the-shoulder-beading-ball-gown-bridal-dress.html"><img src="//img.readybrides.com/284100/christina-wu-brides-spring-summer-2017-15633-cathedral-train-sparkle-shine-off-the-shoulder-beading-ball-gown-bridal-dress.jpg" alt="Christina Wu Brides Spring/Summer 2017 15633 Cathedral Train Sparkle & Shine Off-the-shoulder Beading Ball Gown Bridal Dress" style="width:100%;" /></a>
+Buy it: [https://www.readybrides.com/en/christina-wu/110575-christina-wu-brides-spring-summer-2017-15633-cathedral-train-sparkle-shine-off-the-shoulder-beading-ball-gown-bridal-dress.html](https://www.readybrides.com/en/christina-wu/110575-christina-wu-brides-spring-summer-2017-15633-cathedral-train-sparkle-shine-off-the-shoulder-beading-ball-gown-bridal-dress.html)

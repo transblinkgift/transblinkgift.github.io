@@ -1,0 +1,18 @@
+---
+layout: post
+date: 2016-10-09
+title: "Ella Rosa Spring/Summer 2017 BE373 Sweet Ivory Chapel Train Sheath Illusion Sleeveless Embroidery Satin Dress For Bride Spring Sleeveless Sheath/Column Sweet"
+category: Ella Rosa
+tags: [Ella Rosa,Sheath/Column,Sweet,Illusion,Sleeveless,Spring,Satin]
+---
+### Ella Rosa Spring/Summer 2017 BE373 Sweet Ivory Chapel Train Sheath Illusion Sleeveless Embroidery Satin Dress For Bride
+Just **$389.98**
+###  Spring Sleeveless  Sheath/Column Sweet
+<table><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Trend</td><td>Sweet</td></tr><tr><td>Neckline</td><td>Illusion</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr><tr><td>Season</td><td>Spring</td></tr><tr><td>Fabric</td><td>Satin</td></tr></table>
+<a href="https://www.readybrides.com/en/ella-rosa/107109-ella-rosa-spring-summer-2017-be373-sweet-ivory-chapel-train-sheath-illusion-sleeveless-embroidery-satin-dress-for-bride.html"><img src="//img.readybrides.com/273533/ella-rosa-spring-summer-2017-be373-sweet-ivory-chapel-train-sheath-illusion-sleeveless-embroidery-satin-dress-for-bride.jpg" alt="Ella Rosa Spring/Summer 2017 BE373 Sweet Ivory Chapel Train Sheath Illusion Sleeveless Embroidery Satin Dress For Bride" style="width:100%;" /></a>
+
+<!-- break --><a href="https://www.readybrides.com/en/ella-rosa/107109-ella-rosa-spring-summer-2017-be373-sweet-ivory-chapel-train-sheath-illusion-sleeveless-embroidery-satin-dress-for-bride.html"><img src="//img.readybrides.com/273534/ella-rosa-spring-summer-2017-be373-sweet-ivory-chapel-train-sheath-illusion-sleeveless-embroidery-satin-dress-for-bride.jpg" alt="Ella Rosa Spring/Summer 2017 BE373 Sweet Ivory Chapel Train Sheath Illusion Sleeveless Embroidery Satin Dress For Bride" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/ella-rosa/107109-ella-rosa-spring-summer-2017-be373-sweet-ivory-chapel-train-sheath-illusion-sleeveless-embroidery-satin-dress-for-bride.html"><img src="//img.readybrides.com/273535/ella-rosa-spring-summer-2017-be373-sweet-ivory-chapel-train-sheath-illusion-sleeveless-embroidery-satin-dress-for-bride.jpg" alt="Ella Rosa Spring/Summer 2017 BE373 Sweet Ivory Chapel Train Sheath Illusion Sleeveless Embroidery Satin Dress For Bride" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/ella-rosa/107109-ella-rosa-spring-summer-2017-be373-sweet-ivory-chapel-train-sheath-illusion-sleeveless-embroidery-satin-dress-for-bride.html"><img src="//img.readybrides.com/273536/ella-rosa-spring-summer-2017-be373-sweet-ivory-chapel-train-sheath-illusion-sleeveless-embroidery-satin-dress-for-bride.jpg" alt="Ella Rosa Spring/Summer 2017 BE373 Sweet Ivory Chapel Train Sheath Illusion Sleeveless Embroidery Satin Dress For Bride" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/ella-rosa/107109-ella-rosa-spring-summer-2017-be373-sweet-ivory-chapel-train-sheath-illusion-sleeveless-embroidery-satin-dress-for-bride.html"><img src="//img.readybrides.com/273532/ella-rosa-spring-summer-2017-be373-sweet-ivory-chapel-train-sheath-illusion-sleeveless-embroidery-satin-dress-for-bride.jpg" alt="Ella Rosa Spring/Summer 2017 BE373 Sweet Ivory Chapel Train Sheath Illusion Sleeveless Embroidery Satin Dress For Bride" style="width:100%;" /></a>
+Buy it: [https://www.readybrides.com/en/ella-rosa/107109-ella-rosa-spring-summer-2017-be373-sweet-ivory-chapel-train-sheath-illusion-sleeveless-embroidery-satin-dress-for-bride.html](https://www.readybrides.com/en/ella-rosa/107109-ella-rosa-spring-summer-2017-be373-sweet-ivory-chapel-train-sheath-illusion-sleeveless-embroidery-satin-dress-for-bride.html)

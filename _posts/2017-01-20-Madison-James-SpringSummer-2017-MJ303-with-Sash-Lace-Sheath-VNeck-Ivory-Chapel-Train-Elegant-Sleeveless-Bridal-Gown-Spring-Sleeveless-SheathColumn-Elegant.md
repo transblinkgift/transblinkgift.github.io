@@ -1,0 +1,18 @@
+---
+layout: post
+date: 2017-01-20
+title: "Madison James Spring/Summer 2017 MJ303 with Sash Lace Sheath V-Neck Ivory Chapel Train Elegant Sleeveless Bridal Gown Spring Sleeveless Sheath/Column Elegant"
+category: Madison James
+tags: [Madison James,Sheath/Column,Elegant,V-neck,Sleeveless,Spring,Lace]
+---
+### Madison James Spring/Summer 2017 MJ303 with Sash Lace Sheath V-Neck Ivory Chapel Train Elegant Sleeveless Bridal Gown
+Just **$368.98**
+###  Spring Sleeveless  Sheath/Column Elegant
+<table><tr><td>Silhouette</td><td>Sheath/Column</td></tr><tr><td>Trend</td><td>Elegant</td></tr><tr><td>Neckline</td><td>V-neck</td></tr><tr><td>Sleeve</td><td>Sleeveless</td></tr><tr><td>Season</td><td>Spring</td></tr><tr><td>Fabric</td><td>Lace</td></tr></table>
+<a href="https://www.readybrides.com/en/madison-james/106802-madison-james-spring-summer-2017-mj303-with-sash-lace-sheath-v-neck-ivory-chapel-train-elegant-sleeveless-bridal-gown.html"><img src="//img.readybrides.com/272847/madison-james-spring-summer-2017-mj303-with-sash-lace-sheath-v-neck-ivory-chapel-train-elegant-sleeveless-bridal-gown.jpg" alt="Madison James Spring/Summer 2017 MJ303 with Sash Lace Sheath V-Neck Ivory Chapel Train Elegant Sleeveless Bridal Gown" style="width:100%;" /></a>
+
+<!-- break --><a href="https://www.readybrides.com/en/madison-james/106802-madison-james-spring-summer-2017-mj303-with-sash-lace-sheath-v-neck-ivory-chapel-train-elegant-sleeveless-bridal-gown.html"><img src="//img.readybrides.com/272848/madison-james-spring-summer-2017-mj303-with-sash-lace-sheath-v-neck-ivory-chapel-train-elegant-sleeveless-bridal-gown.jpg" alt="Madison James Spring/Summer 2017 MJ303 with Sash Lace Sheath V-Neck Ivory Chapel Train Elegant Sleeveless Bridal Gown" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/madison-james/106802-madison-james-spring-summer-2017-mj303-with-sash-lace-sheath-v-neck-ivory-chapel-train-elegant-sleeveless-bridal-gown.html"><img src="//img.readybrides.com/272849/madison-james-spring-summer-2017-mj303-with-sash-lace-sheath-v-neck-ivory-chapel-train-elegant-sleeveless-bridal-gown.jpg" alt="Madison James Spring/Summer 2017 MJ303 with Sash Lace Sheath V-Neck Ivory Chapel Train Elegant Sleeveless Bridal Gown" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/madison-james/106802-madison-james-spring-summer-2017-mj303-with-sash-lace-sheath-v-neck-ivory-chapel-train-elegant-sleeveless-bridal-gown.html"><img src="//img.readybrides.com/272850/madison-james-spring-summer-2017-mj303-with-sash-lace-sheath-v-neck-ivory-chapel-train-elegant-sleeveless-bridal-gown.jpg" alt="Madison James Spring/Summer 2017 MJ303 with Sash Lace Sheath V-Neck Ivory Chapel Train Elegant Sleeveless Bridal Gown" style="width:100%;" /></a>
+<a href="https://www.readybrides.com/en/madison-james/106802-madison-james-spring-summer-2017-mj303-with-sash-lace-sheath-v-neck-ivory-chapel-train-elegant-sleeveless-bridal-gown.html"><img src="//img.readybrides.com/272846/madison-james-spring-summer-2017-mj303-with-sash-lace-sheath-v-neck-ivory-chapel-train-elegant-sleeveless-bridal-gown.jpg" alt="Madison James Spring/Summer 2017 MJ303 with Sash Lace Sheath V-Neck Ivory Chapel Train Elegant Sleeveless Bridal Gown" style="width:100%;" /></a>
+Buy it: [https://www.readybrides.com/en/madison-james/106802-madison-james-spring-summer-2017-mj303-with-sash-lace-sheath-v-neck-ivory-chapel-train-elegant-sleeveless-bridal-gown.html](https://www.readybrides.com/en/madison-james/106802-madison-james-spring-summer-2017-mj303-with-sash-lace-sheath-v-neck-ivory-chapel-train-elegant-sleeveless-bridal-gown.html)
